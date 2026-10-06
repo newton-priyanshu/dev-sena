@@ -1,5 +1,5 @@
-# dev-sena
-Refer a friend
+# HAIL ADI BHAI!!!!
+Humara neta kaisa ho, Priyanshu sir jaisa ho!
 Earn 15 Freebucks per friend once they sign up with a GitHub account at least 4 months old and actually use Freebuff.
 
 Referrals
